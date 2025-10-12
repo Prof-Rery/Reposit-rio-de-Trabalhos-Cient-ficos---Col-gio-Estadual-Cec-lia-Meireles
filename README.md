@@ -1,1 +1,1 @@
-# Reposit-rio-de-Trabalhos-Cient-ficos---Col-gio-Estadual-Cec-lia-Meireles
+# Repositório de Trabalhos Científicos Colégio Estadual Cecília Meireles
